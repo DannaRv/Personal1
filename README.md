@@ -12,7 +12,7 @@
 
 :family_woman_woman_boy: Escuchar música 
 
-:clapper: Ver series 
+:clapper: Ver series
 
 :iphone: Interacturar redes sociales 
 
